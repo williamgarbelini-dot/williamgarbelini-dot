@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - Brasil🇧🇷
 - Comunista⚒️
 ![](https://media.tenor.com/dQyC1U8EyPMAAAAM/sankara-thomas-sankara.gif)
+![](https://media.tenor.com/3v1fRxNHAqAAAAAM/angela-davis.gif)
